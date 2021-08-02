@@ -1,4 +1,4 @@
-# Education
+# James
 
 ## Cornell University, College of Engineering
 _May 2022_  \| Ithaca, NY
